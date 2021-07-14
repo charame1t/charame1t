@@ -1,0 +1,3 @@
+- Hi! I'm charame1t!
+- discord : chara-me1t#5177
+- Please call me 'melt' or 'chamelt'.
